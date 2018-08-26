@@ -1,6 +1,6 @@
 # Phanthip
-Auen
-Meaww
-Ten
-Drean
-Kenkk
+Auey
+Meaw
+Ter
+Dream
+Keng
